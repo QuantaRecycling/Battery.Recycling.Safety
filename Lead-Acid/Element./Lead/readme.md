@@ -1,2 +1,1 @@
-- [Lead - Metal That BULLETS Are Made From](
-@Thoisoi2
+- [Lead - Metal That BULLETS Are Made From](https://youtu.be/LjpthO4r1GY) @Thoisoi2
