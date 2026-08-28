@@ -1,2 +1,2 @@
 - [Cadmium - A TOXIC Metal From Old Batteries!](https://youtu.be/J3XjitEH2oU) by: Thoisoi2
-- [Cadmium: The Good, the Bad, and the Toxic (It's in Your TV & Your Chocolate)🧪☠️](
+- [Cadmium: The Good, the Bad, and the Toxic (It's in Your TV & Your Chocolate)🧪☠️](https://youtu.be/49rYRjwg0PI)
